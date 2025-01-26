@@ -1,12 +1,14 @@
 # -idea-120-responses-YOUR_GITHUB_USERNAME-
 murray line poem 
 
-mario is the best
+In a digital world players create their story 
 
-mmario is the best
+authors choosing to write their fates 
 
-mario is the best 
+Will have their  mind dancing in rhythm 
 
-mario is the bect
+And have them see their virtual world 
 
-mario is the best
+Full of light and chaos around them
+
+![]! [image](https://github.com/user-attachments/assets/42da74b4-d255-4ad5-a5b4-0e328526a064)
